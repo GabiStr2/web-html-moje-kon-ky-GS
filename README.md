@@ -1,1 +1,1 @@
-# web-html-moje-kon-ky-GS
+# web-html-moje-konicky-GS
